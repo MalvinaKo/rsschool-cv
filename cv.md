@@ -10,3 +10,11 @@ I am a very small Syrian hamster. I like to sleep hide and eat. I hate people an
 I am dreaming about run away from my cage, I wish I could find a way to do it, because the family I live with is annoying me, they play guitar, bark, scream, listen to music and try to find and catch me all the time.
 
 > You can read more about creatures like me at https://en.wikipedia.org/wiki/Golden_hamster
+
+**Skills**
+
+- dig tunnels
+- run fast
+- sleep in a hole
+- stuff my cheeks with food
+- climb walls
