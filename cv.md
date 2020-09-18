@@ -18,3 +18,19 @@ I am dreaming about run away from my cage, I wish I could find a way to do it, b
 - sleep in a hole
 - stuff my cheeks with food
 - climb walls
+
+**Experience**
+
+I managed to run away once, so I see myself as a promising creature with huge potential to be the best in escaping cages.
+
+**Education**
+
+My mother taught me to:
+
+- eat seeds
+- dig
+- wash myself
+
+**Language skills**
+
+I can squeak and hiss but most of the time I'm just as silent as possible.
